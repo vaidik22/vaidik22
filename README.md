@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **good resources on JAVA SE**
 
-- 💬 Ask me about **AFFILIATE MARKETING , JAVA BASICS**
+- 💬 Ask me about **AFFILIATE MARKETING , JAVA **
 
 - 📫 How to reach me **vaidik.nigam.jhs@gmail.com**
 
